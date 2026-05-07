@@ -1,4 +1,4 @@
-
+smart Adobe Photoshop for macOS Panel | vector export + vector tools offers the most advanced Adobe Photoshop for macOS panel, with vector export and vector tools. Ideal for
 
 
 
